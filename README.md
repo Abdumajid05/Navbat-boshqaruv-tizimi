@@ -1,0 +1,1 @@
+# Navbat-boshqaruv-tizimi
